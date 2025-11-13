@@ -1,1 +1,4 @@
-# Basic
+Assalamolaikom 
+This is MOHAMMAD MOJAMMEL HQUE
+
+MUSLIM || STUDENT || PROGRAMMER || HUMBLE BOY 
